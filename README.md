@@ -1,2 +1,2 @@
-# 35-years-old-programmer
-35-years-old-programmer city
+# 35programmer
+35岁程序员对后续人生的思考！想到什么都可以写下来
